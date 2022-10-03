@@ -2,8 +2,8 @@
 - 🌱 I’m currently learning: I'm the one teaching
 - 👯 I’m looking to collaborate on: I invented colloborate
 - 🤔 I’m looking for help with: Nothing, I am the help
-- 💬 Ask me about Nothing
+- 💬 Ask me about: Nothing
 - 📫 How to reach me: You can't
-- 😄 Pronouns: that/nigga
+- 😄 Pronouns: the fuck is that
 - ⚡ Fun fact: none of yo business 
 -->
